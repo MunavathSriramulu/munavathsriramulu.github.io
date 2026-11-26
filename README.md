@@ -7,4 +7,4 @@
 
 <p><b>His Mission:</b> From India to Abrahamic Family House — Fostering Cooperation, Building Bridges, Strengthening Peace.</p>
 
-<p><b>Expertise:</b> German | English | Hindi | Telugu | Interpretation | Translation | Intercultural Training | Peace Dialogue</p>
+<p><b>Expertise:</b> German | Dutch | Dannish | Swedish | Norwaigan | Finnishh | Janapess | Korean | English | Hindi | Telugu  Interpretation | Corporate Trainer | Language Trainer |Translation | Intercultural Training | Peace Dialogue</p>
